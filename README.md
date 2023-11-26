@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on software projects or data roles projects!
 - 📫 How to reach me:
   + Via Email: everwellmax@gmail.com (Work) or lgthevinh3805@gmail.com (Personal)
-  + Via Facebook: vinh.luongthe.14811
-- 🖥 Checkout my portfolio website --> [lgthevinh.me](https://lgthevinh.me/) ☜(ﾟヮﾟ☜)
+  + Via Facebook: [here](https://www.facebook.com/vinh.luongthe.14811) 
+- 🖥 Checkout my portfolio website --> [lgthevinh.me](https://lgthevinh.me/) \(￣︶￣*\))
