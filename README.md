@@ -5,4 +5,4 @@
 - 📫 How to reach me:
   + Via Email: everwellmax@gmail.com (Work) or lgthevinh3805@gmail.com (Personal)
   + Via Facebook: [here](https://www.facebook.com/vinh.luongthe.14811) 
-- 🖥 Checkout my portfolio website --> [lgthevinh.github.io/my-portfolio/](https://lgthevinh.github.io/my-portfolio/)) \(￣︶￣*\))
+- 🖥 Checkout my portfolio website --> [lgthevinh.github.io/my-portfolio/](https://lgthevinh.github.io/my-portfolio/) \(￣︶￣*\))
