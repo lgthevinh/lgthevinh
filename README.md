@@ -3,6 +3,7 @@
 - 🌱 I’m currently working as Software Engineer Intern at Rogo Solutions, but I'm still available for jobs (Software/Data Engineering)
 - 💞️ I’m looking to collaborate on software projects or data roles projects!
 - 📫 How to reach me:
-  + Via Email: everwellmax@gmail.com (Work) or lgthevinh3805@gmail.com (Personal)
-  + Via Facebook: [here](https://www.facebook.com/vinh.luongthe.14811) 
+  + Via Email: lgthevinh3805@gmail.com (Work) or everwellmax@gmail.com (Personal)
+  + Via Facebook: [lgthevinh](https://www.facebook.com/vinh.luongthe.14811)
+  + Via [Linkedin](www.linkedin.com/in/vinh-luong-the-511a2b252)
 - 🖥 Checkout my portfolio website --> [lgthevinh.github.io/my-portfolio/](https://lgthevinh.github.io/my-portfolio/) \(￣︶￣*\))
