@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Luong The Vinh
-- 👀 I’m interested in Software Development, Data Engineering and IoT.
+- 👀 I’m interested in Software Development, Data, Robotics and IoT.
 - 🌱 I’m currently working as Software Engineer Intern at Rogo Solutions
 - 💞️ I’m looking to collaborate on software projects or data roles projects!
 - 📫 How to reach me:
